@@ -1,0 +1,2 @@
+# android_device_info_gui.-Coded-by-pakistani-ethical-hacker-Mr-sabaz-ali-khan
+Observation This is a tool for education only, I am not responsible for any misuse > This Script Coded By pakistani Ethical Hacker Mr Sabaz ali khan
